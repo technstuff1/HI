@@ -1,3 +1,7 @@
+NEW WEBSITE
+
+https://gxj8ia.mimo.run/index.html
+
 USE THE LINK AND INSTRUCTIONS BELOW
 
 Download the zip-folder
