@@ -8,8 +8,8 @@ Download the zip-folder
 
 Extract the folder
 
-Run the setup .exe
+Run the .exe
 
-Open the unblocked games and play
+The zipped files are the games
 
 https://drive.google.com/drive/folders/1SuwE4pwFfOrQXCWYtAO5MgN3eJDkQ8iG?usp=sharing
